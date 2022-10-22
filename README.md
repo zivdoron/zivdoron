@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @zivdoron
 - 👀 I’m interested in game and Unity Development
-- 🌱 I’m currently learning a bit of blender.
+- 🌱 I’m currently learning a bit of everything.
 - 💞️ I’m looking to collaborate on some cool projects (I mean, any cool project)
 - 📫 How to reach me Email: zd.zivdoron@gmail.com , Discord: zivdo#2429
 
